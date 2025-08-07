@@ -15,7 +15,7 @@ All of us went to auditorium, our seniors welcomed us and many of the HODs, teac
 
 
 #Day 2
-##9.30 to 10.30
+# 9.30 to 10.30
 There was english proficiency test in room no. 113 which is managed by our seniors
 #10.30 to 11.30
 there was maths proficiency test at the same venue which is also managed by our seniors

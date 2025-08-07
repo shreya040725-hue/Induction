@@ -14,8 +14,8 @@ All of us went to auditorium, our seniors welcomed us and many of the HODs, teac
 ##Ashok Singla(Finance person)- Sir introduced us with the education loan provided by government of India about 4 lakhs to students.
 
 
-#Day 2
-# 9.30 to 10.30
+# Day 2
+#9.30 to 10.30
 There was english proficiency test in room no. 113 which is managed by our seniors
 #10.30 to 11.30
 there was maths proficiency test at the same venue which is also managed by our seniors
@@ -27,8 +27,8 @@ Sir aware us regarding Buddy4study imdia foundation. He told that about 200+ com
 
 
 
-#Day 3
-# 9.00 to 1.00
+# Day 3
+#9.00 to 1.00
 There was a great lecture from priya darshani mam on 'universal human values'. She told us about the difference between 'what our body needs' amd 'what we needs'.She explained it with many examples. I want to share one of them. she explained it with example of clothes because our body needs clothes but we don't just like our body needs food bit we dont. And we need respect while our body don't .
 
 

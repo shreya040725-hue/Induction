@@ -15,14 +15,14 @@ there was snacks arrangements at just opposite to gurdwara sahib
 
 
 # Day 2
-# 9.30 to 10.30
+## 9.30 to 10.30
 There was english proficiency test in room no. 113 which is managed by our seniors
- # 10.30 to 11.30
+## 10.30 to 11.30
 there was maths proficiency test at the same venue which is also managed by our seniors
- # 11.30 to 1.00- It was break time, during this we explore the campus.
- # 1.00 to 2.00
+ ## 11.30 to 1.00- It was break time, during this we explore the campus.
+ ## 1.00 to 2.00
  There was a lecture from Dr. Arashdeep singh sir on "food a pivotal role in students overall wellness" in the auditorium. Sir aware us about healthy and good food over the junk. It was a great interactive lecture between sir and students.Many students asked their doubts and sir answered all of them.
- # 2.00 to 3.00
+ ## 2.00 to 3.00
  Sir aware us regarding Buddy4study imdia foundation. He told that about 200+ companies like zomato,coca cola, amazon and many more provide scholarship. CSR fund:- Some company donates 2% salary for infrastructure and studies if students in the college
 
 

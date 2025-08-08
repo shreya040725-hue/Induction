@@ -88,3 +88,13 @@ there was p2p lecture in the same room by our seniors.They taught us some basics
 
 
 
+
+# Day 8
+## 9.00 to 10.30
+there was an arrangement of our identity card making by teacherw outside the TCC sem hall. At that time they used to click our photos for id card and took our signatures or photocopy of adhar card.
+## 10.30 to 12.00
+In th3 room no. 106, Randhir sir comes to our class and taught us maths, topic- partial differentiation. He made the topic very clear and give us some questions to solve,we all tried to solve that sums.And by this our lecture was done.
+● There was only one lecture at 8 august and after attending it i back to home.
+
+
+
